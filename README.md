@@ -1,0 +1,1 @@
+# Okuryazar-sekizli-motor
